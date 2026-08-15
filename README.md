@@ -1,1 +1,1 @@
-I have to computer i will update it soon.
+I have no computer i will update it soon.
